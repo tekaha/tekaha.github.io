@@ -6,3 +6,8 @@ Chewbacca ist der Copilot und Freund von Han Solo. Er gehört zum Volk der Wooki
 * Big
 * Hairy
 * Friend of Han Solo
+
+As Chewbacca said
+
+> AAAAhhhhhhhwaaaaa
+> Waaaahhhhaaahhhaaa
