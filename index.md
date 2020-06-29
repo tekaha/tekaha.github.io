@@ -11,3 +11,7 @@ As Chewbacca said
 
 > AAAAhhhhhhhwaaaaa
 > Waaaahhhhaaahhhaaa
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/8/81/Montreal_Comiccon_2015_-_Chewbacca_%2819270950588%29.jpg"\>
+
+Von Pikawil from Laval, Canada - Montreal Comiccon 2015: Chewbacca, CC BY-SA 2.0, https://commons.wikimedia.org/w/index.php?curid=42791523
